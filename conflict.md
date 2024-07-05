@@ -1,1 +1,1 @@
-If you have any questions, please clap your hands.
+If you have any questions, clap your hands.
