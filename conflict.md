@@ -1,1 +1,1 @@
-If you have any questions, please raise your hand
+If you have any questions, please clap your hand and raise them
